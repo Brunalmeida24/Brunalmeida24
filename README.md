@@ -1,6 +1,6 @@
 👋 Olá, sou @Brunalmeida24
 👀 Tenho interesse na Programção e Evoluçao dos codes.
-🌱 Atualmente estou aprendendo... Ciencia da Computaçao 1 ano 
+🌱 Atualmente estou aprendendo... Ciencia da Computaçao 1 Semestre/Uniesse sp
 💞️ Procuro colaborar em Aprender  e desenvolver coisas novas 
 📫 Como entrar em contato comigo Redes socias 
 😄 Pronomes: ...
